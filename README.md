@@ -1,4 +1,4 @@
-![Screen Shot 2020-07-08 at 8 20 25 PM](https://user-images.githubusercontent.com/22358682/86982947-7c01d880-c158-11ea-9978-c3a71265a612.png)
+![Screen Shot 2020-07-08 at 8 21 19 PM](https://user-images.githubusercontent.com/22358682/86982988-9a67d400-c158-11ea-9244-53ed9b012c34.png)
 
 <!--
 ### Hi there 👋
