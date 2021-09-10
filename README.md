@@ -1,5 +1,3 @@
-![Screen Shot 2020-07-08 at 8 21 19 PM](https://user-images.githubusercontent.com/22358682/86982988-9a67d400-c158-11ea-9244-53ed9b012c34.png)
-
 <!--
 ### Hi there 👋
 
